@@ -3,4 +3,4 @@ Author oskiboski
 Łukasz Biegaj 
 I inny 
 
-Pozwolenie na GM mam retruXD od MrDadosza
+Pozwolenie na GM mam oskiboski2017 od MrDadosza
